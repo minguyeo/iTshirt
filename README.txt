@@ -1,1 +1,1 @@
-developer tshirt shoppping mall open source
+developer tshirt shopping mall open source damn good
